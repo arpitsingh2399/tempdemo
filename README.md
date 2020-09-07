@@ -1,1 +1,1 @@
-hello everyone
+hello everyone, lets start today session.
